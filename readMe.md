@@ -1,1 +1,1 @@
-fuck you man!
+嘿嘿嘿！
